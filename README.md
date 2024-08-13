@@ -4,4 +4,5 @@ _Bem vindo ao meu perfil no GitHub_
 
 **VAI CORINTHIANS** 🖤🤍🦅
 
-![](https://media1.tenor.com/m/s1bdw4t67GAAAAAd/cavalinho-corinthians.gif)
+![](![image](https://github.com/user-attachments/assets/aa39ea17-4cb5-4a63-ab08-67799c346695)
+)
